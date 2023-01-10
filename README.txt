@@ -1,0 +1,2 @@
+faire un shadow of memories like
+on meurt et on debarque dans un monde ou on nous donne le pouvoir de changer notre destin en evitant notre mort mais on meurt autrement et ainsi de suite et on avance l'histoire comme ca
